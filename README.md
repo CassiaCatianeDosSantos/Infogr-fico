@@ -1,1 +1,1 @@
-# Infogr-fico
+# Infográfico
